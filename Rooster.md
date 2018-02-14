@@ -21,7 +21,7 @@ Wanneer|Wie|Wat
 30 maart|.|*(Goede vrijdag; programma onder voorbehoud)*
 6 april|Kevin Ike|Gedrag
 13 april|Hans van der Plicht|Koolstofdatering in de archeologie
-20 april|.|.
+20 april|Richel Bilderbeek|DNA
 27 april|.|*(Koningsdag; programma onder voorbehoud)*
 4 mei|.|*(Mogelijk andere eindtijd i.v.m. Dodenherdenking)*
 11 mei|Cynthia Zwart|CSI (Forensisch onderzoek)
